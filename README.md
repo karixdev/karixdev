@@ -5,7 +5,6 @@
 
 - ⚡ Fun fact **I am big fan of Witcher, Middle-earth and Star Wars universes**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
